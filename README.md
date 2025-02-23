@@ -8,6 +8,6 @@ A superstar in the campus? <i>No, burning through life too fast.</i></h3>
 
 ╰┈➤ got to lord with mantis, magneto, and moon knight
 
-╰┈➤ basic <a href="https://dni-criteria.carrd.co/" rel="nofollow">DNI</a>, under 18, (pro/neu) endo/tulpas, anti mspec/good faith IDs
+╰┈➤ basic <a href="https://dni-criteria.carrd.co/" rel="nofollow">DNI</a>
 
 ╰┈➤ go read jed mackay's moon knight run 
