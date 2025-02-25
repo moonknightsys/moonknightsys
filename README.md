@@ -10,4 +10,6 @@ A superstar in the campus? <i>No, burning through life too fast.</i></h3>
 
 ╰┈➤ basic <a href="https://dni-criteria.carrd.co/" rel="nofollow">DNI</a>
 
+╰┈➤ PT only rules: <b>OK</b>: C+H, kisses/boops (unless a specific skins says not to) <b>ASK</b>: friend requests
+
 ╰┈➤ go read jed mackay's moon knight run 
